@@ -1,0 +1,1 @@
+I love vacations! I would love to take a couple of years to explore the world. (provided that finances are not an obstacle) As long as I don't have to worry about a job/paycheck, I'd take all the time I can visiting small towns and villages and truly immersing myself in a variety of cultures. 
