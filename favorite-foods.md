@@ -2,4 +2,8 @@
 -kung pao chicken
 -enchiladas
 -quesadillas
--cereal 
+-cereal
+
+Markdown!
+
+![Benjamin Bannekat](https://octodex.github.com/images/bannekat.png) 
