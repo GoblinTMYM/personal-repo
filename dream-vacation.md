@@ -3,3 +3,5 @@ I love vacations! I would love to take a couple of years to explore the world. (
 ![amsterdam](https://static3.thetravelimages.com/wordpress/wp-content/uploads/2018/07/Zuiderkerk-in-Amsterdam-iStock-528503566-2_titel.jpg)
 
 ![morocco](https://www.roughguides.com/wp-content/uploads/2013/01/melilla-morocco-shutterstock_589530758-1.jpg)
+
+[wiki page for peru](https://en.wikipedia.org/wiki/Huayna_Picchu)
