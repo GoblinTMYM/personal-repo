@@ -1,0 +1,5 @@
+-chow mein
+-kung pao chicken
+-enchiladas
+-quesadillas
+-cereal 
